@@ -1,1 +1,1 @@
-https://pashashop404.github.io/PASHASUPER/Nigga.html
+https://pashashop402.github.io/PASHASUPER/Nigga.html
